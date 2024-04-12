@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to edit.
 - 💞️ I’m looking to collaborate on a channel.
 - 🩵 Subscribe to my channel, Neon. You will support me a lot!
-- 😄 Pronouns: I don't know.
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: No Fun Facts.
 - ▶ I currently own a Youtube Channel!
 
